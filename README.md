@@ -7,6 +7,7 @@
 
 ## 깝취지마
 *** 이거도 됨? ***
+## 안되네 ㅡㅡ
 ![SSI_20210503113234_O2](https://github.com/user-attachments/assets/6bebcff1-7acb-4876-976b-0748872bbae4)
 
 # 우 리 는 전 진 한 다
