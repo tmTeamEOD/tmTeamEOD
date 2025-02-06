@@ -15,3 +15,8 @@
 # 우 리 는 전 진 한 다
 
 ![2021052114120937651_1](https://github.com/user-attachments/assets/25326259-b85b-4c36-84a7-7a21cb8e41ea)
+
+# 아니 진짜 로보머시기 너무 귀엽다
+
+
+![i14048603270](https://github.com/user-attachments/assets/87302056-687b-4349-a39f-a987c59826b5)
