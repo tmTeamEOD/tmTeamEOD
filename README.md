@@ -1,4 +1,6 @@
 ### 나 김지미다 
+# https://ko.wikipedia.org/wiki/%ED%96%84%EC%8A%A4%ED%84%B0
+
 - 마크다운은 대체 어케 쓰는 언어냐
 - 개어렵네
 - 뽀큐
