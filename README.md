@@ -1,4 +1,7 @@
 ### 나 김지미다 
+- 마크다운은 대체 어케 쓰는 언어냐
+- 개어렵네
+- 뽀큐
 
 ![1059543_413161_1405](https://github.com/user-attachments/assets/1f27edca-50b1-4d51-b42e-70362f4b3305)
 
